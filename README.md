@@ -1,1 +1,1 @@
-skibidi boom boom oh yes yes
+i am young child from china and i was born at the year of roc 97. i do contribute to some software that i use sometimes. i previously worked with minecraft botting libraries but i recently got banned on my favorite minecraft server for duplicating and distrubing illegal items, that way i lose my reason to work on minecraft related libraries. i now will do more contributing on other projects that i think it will benefit me.
